@@ -17,11 +17,11 @@ your choice of toppings: chopped fresh cilantro, cheese, sour cream and/or diced
 Stove
 Bowls
 Knives
-
+Champagne flutes!
 
 ## Steps for preparation:
 Prepare the refried beans in a large saucepan according to recipe instructions.
-Meanwhile, as the beans are cooking, go ahead and scramble the eggs in a non-stick sauté pan.
+Meanwhile, as the beans are cooking, go ahead and scramble the eggs in a non-stick sauté pan. Season eggs as desired.
 Once the beans and eggs are ready to go, it’s time to assemble the tacos!  Simply spread a spoonful of refried beans on a tortilla, top with a spoonful of scrambled eggs, then load it up with avocado, salsa and any of your preferred toppings.
 Serve immediately and enjoy!
 
