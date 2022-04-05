@@ -1,6 +1,6 @@
 # Duck Confit
 
-## Servings: 5
+## Servings: 6
 
 ## Time to prepare: 1.5 hours
 
