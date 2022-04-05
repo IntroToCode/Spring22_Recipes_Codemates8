@@ -41,5 +41,5 @@ Check flesh is cooked: By this stage, the duck flesh should be ultra-tender and 
 ### Notes:
 Pair it with some red wine, such as Cabernet Sauvignon. 
 
-
+Enjoy!
 ### Codemates #8 
