@@ -1,4 +1,4 @@
-# Breakfast Tacos
+# Breakfast Tacos & Mimosas
 
 ## Servings: 4 people
 
@@ -11,6 +11,8 @@
 2 avocados, peeled, pitted and sliced
 your choice of salsa: red, green, or pico de gallo
 your choice of toppings: chopped fresh cilantro, cheese, sour cream and/or diced jalapeños
+Brut Champagne
+Orange or Pineapple juice
 
 
 ## Equipment needed:
