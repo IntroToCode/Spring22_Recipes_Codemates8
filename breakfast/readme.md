@@ -27,7 +27,7 @@ Serve immediately and enjoy!
 
 
 ### Notes:
-Make it spicy with hot sauce
+Make it spicy with hot sauce or you can use a spicy marinade for the meat??
 
 
 ### Codemates 8
