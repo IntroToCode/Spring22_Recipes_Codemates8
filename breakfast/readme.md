@@ -12,7 +12,7 @@
 your choice of salsa: red, green, or pico de gallo
 your choice of toppings: chopped fresh cilantro, cheese, sour cream and/or diced jalapeños
 Brut Champagne
-Orange or Pineapple juice
+Orange or Pineapple juice or Mango Juice
 
 
 ## Equipment needed:
