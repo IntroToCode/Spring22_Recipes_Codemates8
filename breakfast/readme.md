@@ -1,6 +1,6 @@
 # Breakfast Tacos & Mimosas
 
-## Servings: 4 people
+## Servings: 5 people
 
 ## Time to prepare: 1 hour
 
@@ -16,9 +16,9 @@ Orange or Pineapple juice or Mango Juice
 
 
 ## Equipment needed:
-Stove
-Bowls
-Knives
+Stove and frying pan (maybe 2)
+Bowls and napkins
+Knives and forks
 Champagne flutes!
 
 ## Steps for preparation:
@@ -29,7 +29,7 @@ Serve immediately and enjoy!
 
 
 ### Notes:
-Make it spicy with hot sauce or you can use a spicy marinade for the meat??
+Make it spicy with hot sauce or you can use a spicy marinade for the meat?? But have a non spicy option please!
 
 
 ### Codemates 8
