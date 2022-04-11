@@ -1,13 +1,13 @@
 # Duck Confit
 
-## Servings: 6
+## Servings: 5
 
 ## Time to prepare: 1.5 hours
 
 ## Ingredients: Duck, lentils, onions carrots, shallots, thyme, salt, pepper, orange
 
 
-## Equipment needed: sous vide, dutch oven
+## Equipment needed: sous vide, dutch oven, oven mits
 
 
 ## Steps for preparation:
@@ -39,7 +39,7 @@ Check flesh is cooked: By this stage, the duck flesh should be ultra-tender and 
 
 
 ### Notes:
-Pair it with some red wine, such as Cabernet Sauvignon. 
+Pair it with some red wine, such as Cabernet Sauvignon or Malbec. 
 
 Enjoy!
 ### Codemates #8 
