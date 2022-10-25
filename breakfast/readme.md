@@ -5,14 +5,14 @@
 ## Time to prepare: 1 hour
 
 ## Ingredients:
-8 small corn or flour tortillas
-8 large eggs, either scrambled or fried
-1 batch homemade refried beans
-2 avocados, peeled, pitted and sliced
-your choice of salsa: red, green, or pico de gallo
-your choice of toppings: chopped fresh cilantro, cheese, sour cream and/or diced jalapeños
-Brut Champagne
-Orange or Pineapple juice or Mango Juice
+- 8 small corn or flour tortillas
+- 8 large eggs, either scrambled or fried
+- 1 batch homemade refried beans
+- 2 avocados, peeled, pitted and sliced
+- your choice of salsa: red, green, or pico de gallo
+- your choice of toppings: chopped fresh cilantro, cheese, sour cream and/or diced jalapeños
+- Brut Champagne
+- Orange or Pineapple juice or Mango Juice
 
 
 ## Equipment needed:
